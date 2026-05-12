@@ -1,4 +1,4 @@
-# 
+# JetBrains Rider for PC | JetBrains Rider for Windows smart Extension: cloud-integration & debugger is the best JetBrains Rider for PC | JetBrains Rider for Windows extension,
 
 
 
